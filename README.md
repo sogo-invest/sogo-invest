@@ -6,7 +6,7 @@ Sogo Invest ist ein Broker, der aktives Trading und einen investmentorientierten
 
 ## Analyse der Sogo Invest Bewertungen
 
-In den Erfahrungsberichten zu Sogo Invest auf Blogspot, Medium und HackMD zeigt sich, dass Nutzer sowohl einzelne Vorteile als auch die Bequemlichkeit des gesamten Arbeitsformats hervorheben. Kunden loben den Broker-Service häufig dafür, dass sie sich nicht zwischen aktivem Trading und einem ruhigen Investmentansatz entscheiden müssen. Ein einziges Konto kann genutzt werden für:
+In den Erfahrungsberichten zu Sogo Invest auf [Blogspot](https://hackmd.io/KYlKIPgWTHaH5ltU5W--rw), Medium und [HackMD](https://hackmd.io/@sogo-invest/r1ZkQQk1zg) zeigt sich, dass Nutzer sowohl einzelne Vorteile als auch die Bequemlichkeit des gesamten Arbeitsformats hervorheben. Kunden loben den Broker-Service häufig dafür, dass sie sich nicht zwischen aktivem Trading und einem ruhigen Investmentansatz entscheiden müssen. Ein einziges Konto kann genutzt werden für:
 
 *   Kurzfristige Trades;
 *   Den Kauf vielversprechender Vermögenswerte;
